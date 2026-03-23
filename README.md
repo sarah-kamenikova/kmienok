@@ -1,1 +1,2 @@
 Alžbeta II.
+Juraj VI.
